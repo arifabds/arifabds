@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **arifabdusoglu0016@gmail.com**
 
-- 📄 Know about my experiences [https://arifabds.github.io/cv](https://arifabds.github.io/portfolio)
+- 📄 Know about my experiences [https://arifabds.github.io/portfolio](https://arifabds.github.io/portfolio)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
